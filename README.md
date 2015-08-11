@@ -1,2 +1,2 @@
 # giverelay.io
-༼ つ ◕_◕ ༽つ Give RELAY
+༼ つ ◕◡◕ ༽つ Got RELAY
